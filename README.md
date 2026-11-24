@@ -1,4 +1,4 @@
-# The Accord ended an insurgency. The killing went on.
+# The Accord ended an insurgency. The hills still wait for peace.
 
 The Daily Star, by Mir Rownak. Design & development: Mir Rownak.
 
